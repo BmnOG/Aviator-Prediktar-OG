@@ -1,2 +1,2 @@
 # Aviator-Prediktar-OG
-Endesha Ndege.........
+Endesha Ndege bila kuangusha na our brand new Aviator Predikta App which gives you acurate predicyions.
